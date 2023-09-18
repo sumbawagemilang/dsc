@@ -43,7 +43,7 @@ Sebagian ilustrasi bersumber dari [freepik.com](https://freepik.com), infografis
 
 ## Penyusun
 
-- Narasi: Nadliroh & M. Tsani
+- Narasi: Nadliroh & M. Mantsani
 - Liputan: Dani S.
 - Analisis Data: Abyan R.
 - Web: Aldias I. N.
