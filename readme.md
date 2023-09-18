@@ -1,5 +1,7 @@
 ## Pengangguran Terdidik: Dilema Sunyi SDM Berkualitas
 
+![](https://github.com/sumbawagemilang/dsc/blob/main/screenshot/start.png)
+
 #### Pembangunan Proyek
 
 1.  Tahapan awal dalam pembangunan proyek website ini adalah menentukan topik yang menarik untuk dibahas, dalam hal ini tim memilih topik angkatan kerja di Kabupaten Sumbawa, khusunya fenomena dilema pengangguran terdidik.
