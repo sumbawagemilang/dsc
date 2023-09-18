@@ -4,13 +4,13 @@
 
 #### Penjelasan Singkat
 
-Kabupaten Sumbawa merupakan kabupaten yang peduli terhadap pendidikan. Sebagai indikasi untuk ukuran kabupaten yang belum begitu besar, punya 6 perguruan tinggi bisa terbilang banyak. Momentum data story challenge dipergunakan sebagai sarana untuk ekspose The Unheard juga sebagai wadah berkreasi sembari men-challenge diri di tengah padatnya rutinitas.
+Kabupaten Sumbawa merupakan kabupaten yang peduli terhadap pendidikan. Sebagai indikasi untuk ukuran kabupaten yang belum begitu besar, punya 6 perguruan tinggi bisa terbilang banyak. Momentum data story challenge dipergunakan sebagai sarana untuk ekspose **The Unheard** juga sebagai wadah berkreasi sembari men-challenge diri di tengah padatnya rutinitas.
 
 
 Tim dimaksimalkan 5 orang agar bisa turut serta terpacu suasana baru juga karena alasan kemudahan pembagian peran dalam pekerjaan. Tema dipilih “Pengangguran Terdidik”, karena sangat relevan dengan kondisi Kabupaten Sumbawa yang mana sangat peduli dengan pendidikan. Namun, di sisi lain sangat kontras jika lulusan diploma malah justru secara persentase paling banyak menganggur dibandingkan dengan lulusan lainnya. Hal tersebut menggelitik tim story telling buat menelisik lebih dalam baik dari sisi pengganggur perguruan tinggi, Dinas Ketenagakerjaan selaku perumus kebijakan, serta mencoba menyajikan alternatif peluang buat mereka yang masih dalam penantian pekerjaan.  
 
 
-Dipilih web storytelling agar hasil penelisikan bisa diungkapkan secara lebih leluasa, serta sebagai momentum untuk memulai inovasi baru untuk kantor. We do believe, data seharusnya bisa dipergunakan untuk Heard The Unheard untuk pengambilan kebijakan yang lebih tepat sasaran.    
+Dipilih web storytelling agar hasil penelisikan bisa diungkapkan secara lebih leluasa, serta sebagai momentum untuk memulai inovasi baru untuk kantor. *We do believe*, data seharusnya bisa dipergunakan untuk *Heard The Unheard* untuk pengambilan kebijakan yang lebih tepat sasaran.    
 
 
 #### Pembangunan Proyek
